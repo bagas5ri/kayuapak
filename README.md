@@ -1,2 +1,0 @@
-# kayuapak
-Dukuh Kayuapak
